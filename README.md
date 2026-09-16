@@ -12,27 +12,27 @@ Dallas Transport Services, LLC strives to protect public safety and has institut
 - Company periodically checks and updates its policy.
 
 **Dallas Transport Services, LLC**
-214-400-6425
+214-400-6425  
 [dallasluxurybus@gmail.com](mailto:dallasluxurybus@gmail.com)
 
 ### 311 — File a Complaint / Contact 311 Information
 
 **City of Dallas**
-Ground Transportation Regulation Division
-214-670-3161
-3448 W. Mockingbird Lane
+Ground Transportation Regulation Division  
+214-670-3161  
+3448 W. Mockingbird Lane  
 Dallas, TX 75235
 
 **Love Field Airport**
-Ground Transportation
+Ground Transportation  
 214-671-1297
 
 **DFW Airport Board**
-Ground Transportation
+Ground Transportation  
 972-973-4078
 
 **City of Fort Worth**
-Ground Transportation
+Ground Transportation  
 817-392-6987
 
 ### ADA Wheelchair Policy
